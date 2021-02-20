@@ -41,10 +41,5 @@
    https://github.com/rjmurphy1922
    <br>
   rjmurphy1922@gmail.com
- my email or on github.
-   <br>
-   https://github.com/rjmurphy1922
-   <br>
-  rjmurphy1922@gmail.com
 
    
